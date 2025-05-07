@@ -58,7 +58,7 @@ PR は随時受け付けております。受け入れられるかどうかは�
 
 ## Link
 
-[伊予鉗家 YouTube](https://www.youtube.com/@Iyokan_Family)
-[伊予鉗ロイス Twitter](https://x.com/RoYith_Iyokan)
-[伊予鉗アグノ Twitter](https://x.com/Agnos_Iyokan)
-[おたよりフォーム(Google Form)](https://docs.google.com/forms/d/e/1FAIpQLSddZbgo2SgGLnmUOU1yK2oIbIJEg6F2oMuyrSJNnPvNTlfA7w/viewform)
+* [伊予鉗家 YouTube](https://www.youtube.com/@Iyokan_Family)
+* [伊予鉗ロイス Twitter](https://x.com/RoYith_Iyokan)
+* [伊予鉗アグノ Twitter](https://x.com/Agnos_Iyokan)
+* [おたよりフォーム(Google Form)](https://docs.google.com/forms/d/e/1FAIpQLSddZbgo2SgGLnmUOU1yK2oIbIJEg6F2oMuyrSJNnPvNTlfA7w/viewform)
